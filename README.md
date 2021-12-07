@@ -1,2 +1,5 @@
 # UP4EARN
-A small file-download WebSite
+
+COPYRIGHT © ALL RIGHTS RESERVED FOR THIS BETA WEBSITE.
+
+IF YOU WANT TO PURCHASE IT => CONTACT ME AT : [ boussouakyahia@gmail.com ]
